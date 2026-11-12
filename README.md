@@ -141,7 +141,7 @@ I'm open to learning opportunities, collaboration and conversations about softwa
 
 - **Email:** [ngwadlambali3@gmail.com](mailto:ngwadlambali3@gmail.com)
 - **GitHub:** [@Mbali022019](https://github.com/Mbali022019)
-- **LinkedIn:** Add your LinkedIn profile URL here.
+- **LinkedIn:** [Mbali Ngwadla](https://www.linkedin.com/in/mbali-ngwadla-779778263/)
 
 <div align="center">
 
